@@ -1,4 +1,4 @@
-# Hi there, I'm DrCode 👋
+# Hi there, I'm Blackdumii 👋
 
 🌍 **Front End Developer | Building beautiful experiences from Africa to the world!**
 
